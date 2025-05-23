@@ -1,5 +1,11 @@
 ## Список сайтів
 
+### New
+- [vidchuvai.xyz](https://vidchuvai.xyz)
+- [rozumiysebe.xyz](https://rozumiysebe.xyz)
+- [mentalguide.xyz](https://mentalguide.xyz)
+- [emopat.xyz](https://emopat.xyz)
+
 ### A-серія
 - [a1top0001.xyz](https://a1top0001.xyz)
 - [a1top0002.xyz](https://a1top0002.xyz)
